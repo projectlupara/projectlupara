@@ -6,4 +6,4 @@
 
 hux (or rob). 7teen. rot rots. i like extreme horror and umm i fucking love franco barbi. i beat his stupidass every night before i tuck him into bed.
 
-<sub>dnf : 15>, genuinely think franco is ... innocent somehow? (this is stupid but the fandom dude. goddamn), u harass ppl over fiction + ships (no exceptions)</sub>
+<sub>dnf : 15>, genuinely think franco is ... innocent somehow? (this is stupid but the fandom dude. goddamn), u harass ppl over fiction & ships (no exceptions)</sub>
